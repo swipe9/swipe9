@@ -15,10 +15,16 @@ Here are some ideas to get you started:
 
 ### Hi there, I'm Aditya 👋
 
-- 🔭 I'm currently working on [**Swipe**](https://getswipe.in) with an awesome team and backed by YC.
+- 🔭 I'm currently working on [**Swipe**](https://getswipe.in) with an awesome team and backed by Y Combinator.
 
 - ⚡ I'm experiencing all stuff that goes in and around building a company.
 
 - :raised_hands: I would love to interact with and help/learn from entrepreneurs building Startups.
 
-- :email: I am available at [linkedin.com/in/adityavemuganti](https://www.linkedin.com/in/adityavemuganti/)
+- :email: I am available on [LinkedIn](https://www.linkedin.com/company/getswipeindia)
+
+Follow us on ⚡⚡⚡
+
+[Instagram](https://www.instagram.com/getswipeindia/)
+[Youtube](https://www.youtube.com/@swipebilling)
+[LinkedIn](https://www.linkedin.com/company/getswipeindia)
