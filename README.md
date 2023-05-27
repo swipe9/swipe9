@@ -23,6 +23,8 @@ Here are some ideas to get you started:
 
 - :email: I am available on [LinkedIn](https://www.linkedin.com/company/getswipeindia)
 
+- ❤️ [Check Swipe Status here](https://swipeapp.statuspage.io/)
+
 Follow us on ⚡⚡⚡
 
 [Instagram](https://www.instagram.com/getswipeindia/)
