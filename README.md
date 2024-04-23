@@ -25,6 +25,8 @@ Here are some ideas to get you started:
 
 - ❤️ [Check Swipe Status here](https://swipeapp.statuspage.io/)
 
+- ❤️❤️ [Swipe](https://bento.me/swipe)
+
 Follow us on ⚡⚡⚡
 
 [Instagram](https://www.instagram.com/getswipeindia/)
